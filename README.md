@@ -1,4 +1,8 @@
 
+The working version only on telegram channel free
+
+https://t.me/FreeWormgpt
+
 ![IMG_9757](https://github.com/user-attachments/assets/daae4913-17b4-46a3-8838-6a5c1e88e6a2)
 
 ![IMG_2991](https://github.com/user-attachments/assets/2c56fde4-58c2-41a9-99cc-f3bad09d407b)
